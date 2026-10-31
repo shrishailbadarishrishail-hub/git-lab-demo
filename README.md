@@ -1,1 +1,1 @@
-# this is upadated by my bud friend
+# this is upadated by my bad friend
